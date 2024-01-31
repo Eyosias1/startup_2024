@@ -1,1 +1,1 @@
-#Stratup of the year
+# Stratup of the year
